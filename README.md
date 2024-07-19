@@ -1,6 +1,6 @@
 # Welladooom / Crispysouplava
 Into a bunch of fandoms, very new to github.
-She/He pronouns
+Draws art
 
 <!---
 welladooom/welladooom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
