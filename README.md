@@ -1,4 +1,6 @@
-i am the welladooom and i use he/him or she/her
+# Welladooom / Crispysouplava
+Into a bunch of fandoms, very new to github.
+She/He pronouns
 
 <!---
 welladooom/welladooom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
