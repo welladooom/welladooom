@@ -1,6 +1,5 @@
 # Welladooom / Crispysouplava
-Into a bunch of fandoms, very new to github.
-Draws art
+hey im wella and i make doodoo fart art
 
 <!---
 welladooom/welladooom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
